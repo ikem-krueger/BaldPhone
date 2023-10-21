@@ -1,4 +1,4 @@
 # Links
 
 ## Alternatives
- - [Seniorenhandy EinfachFon - Smartphone mit leichter Bedienung](https://www.einfachfon.de/)
+ - [EinfachFon Seniorenhandy & Kinderhandy & einfaches Smartphone - Leichte Bedienung](https://www.einfachfon.de/)
